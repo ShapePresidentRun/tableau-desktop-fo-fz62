@@ -1,4 +1,4 @@
-
+premium Tableau Desktop for macOS Automation | custom-functions + multi-sheet-management is the best Tableau Desktop for macOS automation, featuring custom-functions and
 
 
 
